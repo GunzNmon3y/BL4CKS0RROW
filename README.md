@@ -1,4 +1,4 @@
-°❀⋆.ೃ࿔*:･ ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────.☘︎ ݁˖
+°❀⋆.ೃ࿔*:･ ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────.☘︎ ݁˖
 <img width="350" height="19" alt="image" src="https://github.com/user-attachments/assets/6def7c4e-6e06-4a18-8c9f-af2b2e6155db" /> <img width="350" height="19" alt="image" src="https://github.com/user-attachments/assets/556c52ba-30a9-43c9-bf54-14c9d71edad8" /> <img width="50" height="18" alt="image" src="https://github.com/user-attachments/assets/02f8e68f-697c-4e25-9313-ecaf73d40b6b" /> <img width="60" height="18" alt="image" src="https://github.com/user-attachments/assets/4b781cfc-15a9-4701-a4d7-15bdfe8241a9" />
  <img width="50" height="18" alt="image" src="https://github.com/user-attachments/assets/c06b8601-a413-4cbe-b9c9-780be371762e" /> 𝜗ৎ ࣪ ִֶָ☾. ⋆⭒˚.⋆
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/a26d16c9-441b-42e5-85fa-1b469b530de4" />
