@@ -131,7 +131,7 @@
 
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦✦•┈๑⋅⋯ ⋯⋅๑┈•✦✦•┈๑⋅⋯ ⋯⋅๑┈•✦✦•┈๑⋅⋯ ⋯⋅๑┈•✦✦•┈๑⋅⋯ ⋯⋅๑┈•✦✦•┈๑⋅⋯⋅๑┈•✦✦•┈๑⋅⋯  ⋆˙⟡
 
-'' if you ever try to leave me, ill find you. '' ༘⋆ ୭ ˚. ᵎᵎ 𝜗ৎ
+'' if you ever try to leave me, ill find you. '' ༘⋆ ୭ ˚. ᵎᵎ 𝜗ৎ . 
 
 <img width="250" height="153" alt="image" src="https://github.com/user-attachments/assets/4bdf201e-3f4b-461e-9eb4-6bb2393ce8bf" />
 <img width="250" height="153" alt="image" src="https://github.com/user-attachments/assets/afafea82-b18a-4620-95c9-7b89156d255b" />
