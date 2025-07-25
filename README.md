@@ -112,15 +112,15 @@
 
 ---- ♡︎ fandoms 
 
-⸝⸝ alien stage  .  pucca .  nana
+⸝⸝ alien stage  .  pucca .  nana . tshd
 
-⸝⸝ lmk  .  deadplates . bonnies bakery
+⸝⸝ lmk  .  deadplates . bonnies bakery . married in red
 
-⸝⸝ forsaken . pink bitch club . tbhk
+⸝⸝ forsaken . pink bitch club . tbhk . madoka
 
-⸝⸝ project sekai . mouthwashing . sonic the hedgehog
+⸝⸝ project sekai . mouthwashing . sonic the hedgehog 
 
-⸝⸝ kinetsu no yaiba . lookback . Crk
+⸝⸝ kinetsu no yaiba . lookback . Crk . 
 
 ⸝⸝ one piece . alice in borderland . etc
 
